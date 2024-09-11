@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @lashilan-poeka
+- 👀 I’m interested in ... humanity
+- 🌱 I’m currently learning ... humans
+- 💞️ I’m looking to collaborate with ... you 
+- 📫 How to reach me ... look up
+- 😄 Pronouns: ... him
+- ⚡ Fun fact: ... i am watching
